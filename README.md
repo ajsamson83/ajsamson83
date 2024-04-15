@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ajsamson83
+- 👀 I’m interested in programming
+- 🌱 I’m currently learning
+- 💞️ I’m looking to collaborate on anything and everything that will help achieve my goal.
